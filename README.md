@@ -1,0 +1,1 @@
+# votacionesMintic2022
